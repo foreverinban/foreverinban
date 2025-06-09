@@ -1,5 +1,5 @@
 # 💫 About Me:
-Foreverdog<br>English / Russian<br>Dublin, Ireland<br>The student of an One Year International Foundation Program <br>in Dublin City University -> Cybersecurity <br><br>
+Foreverdog<br>English / Russian<br>Dublin, Ireland<br>The student on One Year International Foundation Program <br>in Dublin City University -> Cybersecurity <br><br>
 
 
 ## 🌐 Socials:
